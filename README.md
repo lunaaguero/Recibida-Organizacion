@@ -1,2 +1,0 @@
-# Recibida-Organizacion
-Recibida
